@@ -1,0 +1,1 @@
+The Canadian holiday Boxing Day got its name from the custom of giving. Servants were given boxes which had money hidden inside them from their employers. The servants would have to break the box into pieces to get the money
