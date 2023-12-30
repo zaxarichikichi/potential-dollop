@@ -1,0 +1,1 @@
+The reason the Animal Crackers box is designed with a string handle is because when the popular circus theme was introduced in 1902 they thought it would also be a good idea to package them with a string as a Christmas novelty so they could be hung from Christmas trees
