@@ -1,0 +1,1 @@
+Google receives more than 200 million search queries a day, more than half of which come from outside the United States. Peak traffic hours to google.com are between 6 a.m. and noon PST, when more than 2,000 search queries are answered a second
