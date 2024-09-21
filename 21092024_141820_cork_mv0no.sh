@@ -1,0 +1,1 @@
+The actual smallest sovereign entity in the world is the Sovereign Military Order of Malta (S.M.O.M.). It is located in the city of Rome, Italy, has an area of two tennis courts, and as of 2001 has a population of 80, 20 less people than the Vatican. It is a sovereign entity under international law, just as the Vatican is
